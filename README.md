@@ -1,0 +1,1 @@
+# Monitorando-Pre-os-Amazon---WebScrapping
